@@ -1,1 +1,2 @@
-Experience 5 here.
+While I loved working with the animals, some of the tasks were challenging. Cleaning cages and handling anxious animals could be tough, especially with limited resources and space. At times, the shelter was understaffed, which made the work more demanding and occasionally overwhelming. I learned a lot about resilience and adaptability, but the physical and emotional strain could be difficult.
+Grade:** B – For the most part, it was enjoyable and fulfilling, but certain aspects of the job were challenging. Nonetheless, it was a positive and impactful experience that contributed greatly to my personal growth.

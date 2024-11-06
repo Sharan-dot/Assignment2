@@ -1,1 +1,2 @@
 Experience 1 here
+I volunteered at a local animal shelter, where I helped care for animals and supported the shelter staff with day-to-day tasks. My main responsibilities included feeding, cleaning cages, ensuring the animals were comfortable, and assisting during adoption events. I also provided guidance to potential pet adopters, helping them find the best match based on the animals' temperaments and their own needs. Through this role, I developed empathy, learned about animal behavior, and gained valuable customer service skills.

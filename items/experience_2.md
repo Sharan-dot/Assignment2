@@ -1,1 +1,2 @@
 Experience 2 here
+I volunteered from June 2021 to December 2021, dedicating weekends and some weekday evenings. This role required consistent weekly commitment, especially as the shelter was busiest during weekends when most adoption events were held.
