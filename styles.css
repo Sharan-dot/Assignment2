@@ -8,14 +8,7 @@
   --button-background: #007bff;
   --pane-padding: 20px;
 }
-```
 
-Fonts
-Headings: "Roboto Slab"
-Body: "Open Sans"
-
-Sample CSS Implementation
-```css
 body {
   font-family: "Open Sans", sans-serif;
   background-color: var(--main-background);
