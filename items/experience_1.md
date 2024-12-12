@@ -1,2 +1,15 @@
-Experience 1 here
-I volunteered at a local animal shelter, where I helped care for animals and supported the shelter staff with day-to-day tasks. My main responsibilities included feeding, cleaning cages, ensuring the animals were comfortable, and assisting during adoption events. I also provided guidance to potential pet adopters, helping them find the best match based on the animals' temperaments and their own needs. Through this role, I developed empathy, learned about animal behavior, and gained valuable customer service skills.
+*Experience 1: Volunteering at a Food Bank**
+What was it that you did?
+I volunteered at a local food bank, organizing donations and distributing food to families in need.
+
+When did you do it?
+From June 2019 to August 2020.
+
+What was good about it?
+It was rewarding to see the direct impact of my efforts on the community.
+
+What was your favourite memory of it?
+Seeing a family express their heartfelt gratitude during the holiday season.
+
+What didn't you enjoy about it?
+The long hours of lifting and sorting donations were physically demanding.
