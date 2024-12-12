@@ -1,1 +1,17 @@
-One of my favorite memories was the adoption fair held in October. The whole community came together to support the shelter, and I got to see several animals find loving homes that day. One family, in particular, adopted a shy, older cat named Whiskers. I had spent time helping her adjust and socialize, and seeing her go to a caring family was a highlight for me. It reinforced the importance of my work and made all the hard tasks worth it.
+*Experience 4: Learning Guitar**
+What was it that you did?
+I practiced guitar regularly and performed at small local events.
+
+When did you do it?
+From January 2016 to December 2020.
+
+What was good about it?
+Playing music was therapeutic and allowed me to express creativity.
+
+What was your favourite memory of it?
+Performing my first solo piece at a community event.
+
+What didn't you enjoy about it?
+Learning to master difficult chords required a lot of patience.
+
+Grade: A
