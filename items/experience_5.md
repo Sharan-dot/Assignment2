@@ -1,2 +1,17 @@
-While I loved working with the animals, some of the tasks were challenging. Cleaning cages and handling anxious animals could be tough, especially with limited resources and space. At times, the shelter was understaffed, which made the work more demanding and occasionally overwhelming. I learned a lot about resilience and adaptability, but the physical and emotional strain could be difficult.
-Grade:** B – For the most part, it was enjoyable and fulfilling, but certain aspects of the job were challenging. Nonetheless, it was a positive and impactful experience that contributed greatly to my personal growth.
+*Experience 5: Participating in a Debate Club**
+What was it that you did?
+I was a member of the debate club, preparing arguments and competing in tournaments.
+
+When did you do it?
+From September 2017 to June 2019.
+
+What was good about it?
+Debating improved my critical thinking and public speaking skills.
+
+What was your favourite memory of it?
+Winning the regional debate championship with my team.
+
+What didn't you enjoy about it?
+The stress of intense preparation before competitions.
+
+Grade: A
