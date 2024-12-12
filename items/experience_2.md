@@ -13,3 +13,5 @@ Having my first full conversation in French without needing to switch to English
 
 What didn't you enjoy about it?
 Conjugating verbs was challenging and sometimes frustrating.
+
+Grade: B
